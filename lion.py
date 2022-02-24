@@ -12,3 +12,5 @@ He’s usually calm
 like very old dogs
 He just gets excited near
 card catalogs..
+yes lion is a king of all animals
+.
